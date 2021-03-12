@@ -1,0 +1,2 @@
+# Market-research
+Blueweave Consulting offers a one-stop solution for your market intelligence needs for any service or product. You get well-researched comprehensive reports based on qualitative and quantitative data to put your business plan into action. Your well-informed and timely decisions using our reports avert situations of excessive risks and help you grow your business with optimum risk-return trade-off.
